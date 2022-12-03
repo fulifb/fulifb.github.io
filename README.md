@@ -1,6 +1,6 @@
 ﻿:bangbang::bangbang:色站大全 最新地址发布:bangbang::bangbang:
 ==
-:fire: :point_right: 【福利发布导航】 ：https://https://fulifb.github.io/
+:fire: :point_right: 【福利发布导航】 ：https://fulifb.github.io/
 ------
 :fire: :point_right: 【银色导航】 ：https://yinsedh.neocities.org/
 ------
